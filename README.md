@@ -1,1 +1,1 @@
-# Regards-strat-giques-G-opolitique-climat-et-transformation-du-monde
+# Regards-stratégiques-Géopolitique-climat-et-transformation-du-monde
